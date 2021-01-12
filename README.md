@@ -1,1 +1,1 @@
-# random-thoughts
+# Random thoughts
